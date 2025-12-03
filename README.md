@@ -11,6 +11,10 @@
 > **Note**
 > **140+ Games & Apps!, You can fork but don't steal all the credit. nate-games2 is just my alt account**
 
+
+> **Another Note**
+> **I (XSeries553) Did not make this. All credit goes to nate-games. Go check them out.**
+
 # Features
 - 140+ games & apps
 - 10+ unblocked websites
